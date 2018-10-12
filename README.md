@@ -1,3 +1,3 @@
 # TeacherTime
 
-Isaiah was here
+Isaiah the man
