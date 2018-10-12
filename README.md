@@ -1,3 +1,2 @@
 # TeacherTime
-
-Rock State
+Rockhurst
