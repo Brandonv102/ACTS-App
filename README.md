@@ -1,4 +1,3 @@
 # TeacherTime
 
-Donovan's Back Yay
-Isaiah Cherry 
+Get Help 
