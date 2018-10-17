@@ -1,3 +1,3 @@
 # TeacherTime
 
-Vanilla thunder
+Goober berry sundae
