@@ -1,3 +1,3 @@
 # TeacherTime
 
-Vanilla thunder
+Im a goofy goober
