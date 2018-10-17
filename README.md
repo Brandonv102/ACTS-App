@@ -1,3 +1,3 @@
 # TeacherTime
 
- Friday 
+ Weekend
